@@ -1,0 +1,1 @@
+Pratiquer c'est bien pour la connaissance
